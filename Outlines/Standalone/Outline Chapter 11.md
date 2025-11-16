@@ -1,6 +1,6 @@
 # Chapter 11: Re-Entry
 
-**Transition from Previous**: Back in New York after two weeks in Cornwall. Astrid and Benedict must navigate their new relationship in the real world while dealing with professional obligations.
+**Transition from Previous**: Back in New York after two weeks away—the flight from London to JFK reversing the journey that started this all. Astrid and Benedict must navigate their new relationship in the real world while dealing with professional obligations.
 
 **POV**: Benedict Shaw | **Purpose**: Establish Act 2 setting, show relationship in normal context, introduce professional complications, set up rival threat escalation
 
